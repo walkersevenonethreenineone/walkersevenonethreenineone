@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @walkersevenonethreenineone
-- 👀 I’m interested in everything
+- 👀 I’m interested in EVERYTHING
 - 🌱 I’m currently learning in school
 
 <!---
